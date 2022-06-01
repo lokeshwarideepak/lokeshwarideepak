@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lokeshwarideepak, Call me (Lokesh)🙂
-- 👀 I’m interested in travelling, Cooking, Shopping and all times favourite spending time with my family
+- 👀 I’m interested in travelling, Cooking, Shopping and all times favourite spending time with my family.
 - 🌱 I’m currently learning SheCodes Pro course, which includes (SheCodes Plus, SheCodes Responsive & SheCodes React)👩‍💻
 - 💞️ I’m looking on changing my career to IT career.
 - 📫 How to reach me lokeshwarideepak@gmail.com.
